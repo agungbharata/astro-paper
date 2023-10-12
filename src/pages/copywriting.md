@@ -17,7 +17,7 @@ Ini adalah hadiah yang sempurna untuk keluarga, teman, atau siapa pun yang ingin
 
 Pesan Kalender JKDN 2024 disini
 
-https://wa.me/628971710369?text=Pesan+Kalender
+https://wa.me/no-hp-anda?text=Pesan+Kalender
 
 <hr>
 
@@ -33,6 +33,6 @@ Tak hanya itu, Kalender JKDN 2024 juga adalah hadiah sempurna untuk keluarga, te
 
 Jangan lewatkan kesempatan untuk memiliki Kalender JKDN 2024 ini. Pesan sekarang melalui tautan berikut:
 
-👉 https://wa.me/628971710369?text=Pesan+Kalender
+👉 https://wa.me/no-hp-anda?text=Pesan+Kalender
 
 Bergabunglah dalam perjalanan sejarah yang tak terlupakan bersama kami!
